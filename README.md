@@ -43,9 +43,8 @@
 ---
 
 ### 🌐 **Connect With Me**
-📧 **Email:** [moeez.ibrahim@example.com](mailto:moeez.ibrahim@example.com)  
-💼 **LinkedIn:** [linkedin.com/in/moeez-ibrahim](https://linkedin.com/in/moeez-ibrahim)  
-🐦 **Twitter (X):** [@moeezibrahim](https://x.com/moeezibrahim)
+📧 **Email:** [moeez.ibrahim@example.com](mailto:moeezibrahim7899@gmail.com)  
+
 
 ---
 
