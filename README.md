@@ -43,7 +43,7 @@
 ---
 
 ### 🌐 **Connect With Me**
-📧 **Email:** [moeez.ibrahim@example.com](mailto:moeezibrahim7899@gmail.com)  
+📧 **Email:** [moeezibrahim7899@gmail.com](mailto:moeezibrahim7899@gmail.com)  
 
 
 ---
